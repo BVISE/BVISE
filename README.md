@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BVISE
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Coding and Watchmaking
+- 📫 How to reach me ... idk
